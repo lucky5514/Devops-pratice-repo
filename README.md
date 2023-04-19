@@ -1,2 +1,0 @@
-# Devops-pratice-repo
-kvhsdkhvuv
